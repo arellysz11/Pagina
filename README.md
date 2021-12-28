@@ -18,4 +18,8 @@ Por Año: 2021, 2020, 2019, 2018
 
 Sobre nosotras: 
 
-Nuestras recomendaciones: -Arellys: Crepusculo, Orgullo y Prejuicio, Fragmentado -Micaela: Trilogía de Before, Parasite, Inception -Verónica:
+Nuestras recomendaciones: 
+
+-Arellys: Crepusculo, Orgullo y Prejuicio, Fragmentado 
+-Micaela: Trilogía de Before, Parasite, Inception 
+-Verónica:
